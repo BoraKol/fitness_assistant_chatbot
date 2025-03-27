@@ -1,5 +1,5 @@
 ### fitness_assistant_chatbot
-![image](https://github.com/user-attachments/assets/009499aa-8eaa-4ac7-8714-dff0d1082946)
+![foto3](https://github.com/user-attachments/assets/ac2031b1-b392-4ce8-a76c-5115219026a1)
 
 
 
